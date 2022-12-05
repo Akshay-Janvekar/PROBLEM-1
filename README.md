@@ -1,1 +1,6 @@
-# PROBLEM-1
+# PROBLEM-1![Frame 1problem1](https://user-images.githubusercontent.com/47605359/205671471-ae946f71-8e8f-4abe-85c0-d079cac1e971.png)
+![Frame 16problem1](https://user-images.githubusercontent.com/47605359/205671491-6bac506d-28b5-4fbe-acbe-35107ae05d62.png)
+![Frame 17problem1](https://user-images.githubusercontent.com/47605359/205671507-645203ff-d444-4be4-ba35-b7d8a84a3438.png)
+![iPhone 14 - 1phone](https://user-images.githubusercontent.com/47605359/205671532-9d0a6bb7-04e0-4613-b86f-c4fa7c132b56.png)
+![iPhone 14 - 2phone](https://user-images.githubusercontent.com/47605359/205671557-e12bbd57-7deb-413e-b486-12a3327c34d7.png)
+![iPhone 14 - 3phone](https://user-images.githubusercontent.com/47605359/205671589-06cfe3f1-2bb2-4c96-bf36-a9bb89495fec.png)
